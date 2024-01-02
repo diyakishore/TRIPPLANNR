@@ -37,4 +37,4 @@ Contribution Guidelines:
 We welcome contributions from the community to enhance and expand the Trip Planner Website. If you're interested in contributing, please follow our Contribution Guidelines.
 
 
-Start planning your next adventure with the Trip Planner Website. Happy travels! 🗺️🚀
+Start planning your next adventure with the Trip Planner Website. Happy travel! 🗺️🚀
